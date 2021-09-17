@@ -1,0 +1,1 @@
+# 3d-lgs-fen-bilimleri-soru-bankasi-2022-32
